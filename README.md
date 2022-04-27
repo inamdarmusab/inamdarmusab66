@@ -1,4 +1,4 @@
-# inamdarmusab66
+# inamdarmusab
 
 Hi 👋 My name is Musab inamdar
 ==============================
